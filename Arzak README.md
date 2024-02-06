@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Arzak
+- 👀 I’m interested in:Game
+- 🌱 I’m currently learning:Programer
+- 💞️ I’m looking to collaborate:Hacker
+- 📫 How to reach me:whatsapp call
+- 😄 Pronouns: Evil
+- ⚡ Fun fact: iam so young
+-                 Thanks
